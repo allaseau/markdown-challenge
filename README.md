@@ -9,4 +9,6 @@
 | Ask | Answer |
 | ----------- | ----------- |
 | Birthday | 29/12/1993 |
-| Paragraph | Text |
+| Favorite color | Deep Purple |
+| Favorit food | Good one |
+| Pineapple on pizza | Depends who I'm talking to |
