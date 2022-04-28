@@ -19,7 +19,12 @@
 - Voyages
 - Plein d'autres trucs banales 
 - La NBA
+- Refaire le monde autour d'un verre
 
 ## You can always count on me when ...
 
-Je suis toujours à l'écoute et près à aider (dans la mesure du possible bien entendu). Toujours prêt à donner un coup de main et à apprendre de nouvelles choses (mais seulement dans la bonne ambiance). 
+Quand on a besoin de moi. Je suis toujours à l'écoute et près à aider (dans la mesure du possible bien entendu). Toujours prêt à donner un coup de main et à apprendre de nouvelles choses (mais seulement dans la bonne ambiance). 
+
+## A funny story
+
+Un jour j'ai croisé Joey Starr en sortant d'un commissariat de police.
